@@ -1,1 +1,1 @@
-# Avatar-Frontiers-of-Pandora
+# Avatar-Frontiers-of-Pandora-3D-MOD
